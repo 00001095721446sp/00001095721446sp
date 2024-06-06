@@ -1,0 +1,6 @@
+- 👋 Olá, sou estudante do terceiro ano B 2024
+- 👀 Espero que gostem 
+- 🌱 pretendo inovar
+- 📫 Vamos criar vários projetos 
+- 😄 Se Divirtam com as criações
+- ⚡ Até mais
